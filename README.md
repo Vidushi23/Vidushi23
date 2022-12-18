@@ -9,4 +9,3 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on Web-Developement related projects
 - 📫 How to reach me: swetika.s2002@gmail.com
 - ⚡ Fun fact: I love reading books
--->
